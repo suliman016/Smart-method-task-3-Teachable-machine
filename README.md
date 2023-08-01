@@ -1,0 +1,1 @@
+# Smart-method-task-3-Teachable-machine
